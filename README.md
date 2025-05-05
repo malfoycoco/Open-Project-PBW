@@ -1,3 +1,7 @@
 # Open-Project-PBW
 
-# ini hasil editan aksyal
+Nama  : 
+- Shofi Shulhiyana (2210631250069)
+- Aksyal faiz 
+
+ini editan aksyal
